@@ -1,3 +1,5 @@
+Hola,Soy Xitlali De La Rosa
+
 Soy bióloga y estudiante de maestría en Ecología Humana, interesada en la relación entre salud, territorio y biodiversidad 🦇🌿. Me apasiona comprender cómo la urbanización impacta a los ecosistemas y cómo podemos construir soluciones más justas desde la ciencia y el trabajo comunitario. Me gusta leer, escribir y participar en espacios de divulgación científica. 
 
 🧪 Formación académica: 
